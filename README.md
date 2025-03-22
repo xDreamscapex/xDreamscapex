@@ -1,3 +1,3 @@
-We're a system respect us. ⌯ dandy’s world brainrot 🍭 ⌯ we're slow with responses 
+We're a system respect us. ⌯ 21 ♐️ ⌯ dandy’s world brainrot 🍭 
 
 
